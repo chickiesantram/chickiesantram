@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chickiesantram
-Head of Products of an International Online Media company
+Chief at Ministry of Magic. 
 
 - 👀 I’m interested in ...
 Everything about online products, digital technologies, and farming
